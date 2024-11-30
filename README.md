@@ -1,7 +1,7 @@
 # forgive *transitive verb*
 
 **1 a :** dismiss as impetus to retaliation and resentment<br>
-**1 b :** dismiss as impetus to alienation or reduction and standing
+**1 b :** dismiss as impetus to alienation or reduction in standing
 > _“forgive us our trespasses…”; forgive an insult_
 
 **2 a :** dismiss wrongs committed by (someone) as impetus to retaliation and resentment<br>
