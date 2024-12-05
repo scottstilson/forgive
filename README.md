@@ -10,4 +10,4 @@
 **2 b :** dismiss wrongs committed by (someone) as impetus to alienation and reduction in standing
 > _forgive one’s enemies; “I forgive you”_
 
-**NB:** The ‘b’ form of forgiveness should only be granted if the offender has confessed his or her sin, made amends, requested forgiveness, and otherwise shown ample evidence of complete repentance. Otherwise, it is morally hazardous.
+**NB:** The ‘c’ form of forgiveness should only be granted if the offender has confessed his or her sin, made amends, requested forgiveness, and otherwise shown ample evidence of complete repentance. Otherwise, it is morally hazardous.
