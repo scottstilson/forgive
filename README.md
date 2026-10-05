@@ -1,4 +1,3 @@
 # forgive *verb*
 
-**1 a :** to dismiss (wrongs committed or debts owed) as grounds to continue to claim [amends](https://github.com/scottstilson/amends) or repayment, to harbor ill will, or to call for punishment<br>
-**1 b :** to dismiss wrongs committed by or debts owed by (someone) as grounds to continue to claim [amends](https://github.com/scottstilson/amends) or repayment, to harbor ill will, or to call for punishment
+**1 :** to dismiss as grounds to harbor ill will toward or continue to claim punishment of, repayment from, or [amends](https://github.com/scottstilson/amends) from
